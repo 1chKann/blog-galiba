@@ -1,2 +1,2 @@
 # Coming Soon
-anneciğime selamlar
+naber hacı nasılsın beğendin mi
